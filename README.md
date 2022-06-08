@@ -1,1 +1,1 @@
-# Simole-Page-Solares
+# Simple-Page-Solares
